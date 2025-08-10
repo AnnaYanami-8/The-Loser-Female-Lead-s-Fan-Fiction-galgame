@@ -13,8 +13,10 @@
 [https://pan.baidu.com/s/5PUYgzxw2gy41wLQBtBaExw#list/path=%2F&vmode=list](https://pan.baidu.com/s/5PUYgzxw2gy41wLQBtBaExw#list/path=%2F&vmode=list)
 ### 夸克网盘
 [https://pan.quark.cn/s/a058d0c1febb](https://pan.quark.cn/s/a058d0c1febb)
-### 123网盘
+### 123网盘（不限速）
 [https://www.123865.com/s/zXKcjv-Zvnwv](https://www.123865.com/s/zXKcjv-Zvnwv)
+### 123中国移动云盘（不限速）
+[https://caiyun.139.com/w/i/2oRgXAXi5Gyqc 提取码:7i62](https://caiyun.139.com/w/i/2oRgXAXi5Gyqc)
 ## QQ群列表
 ### 1群：655818883（满）
 ### 2群：764581517（满）
