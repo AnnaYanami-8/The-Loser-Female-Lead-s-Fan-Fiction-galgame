@@ -1,5 +1,5 @@
 
-# 败犬女主二创Galgame分享网址(原作者B站UP poor_miner 团队，更多内容B站搜索“观鸟社”)网盘下载链接在下面
+# 败犬女主二创Galgame分享网址(原作者B站UP poor_miner 团队，更多内容B站搜索“观鸟社”)网盘下载链接在下面（包括Android版本与Windows版本）
 ## 右边Releases 1可直接下载Windows败犬女主二创galgame_1.0.0   ====>
 ## 推广视频 
 [【历经半年，我们的败犬女主二创gal终于发布了！】https://www.bilibili.com/video/BV1GmtYzqEap?vd_source=ade0f65c3e9a0060d2e1b9e6b6b820d8](https://www.bilibili.com/video/BV1GmtYzqEap?vd_source=ade0f65c3e9a0060d2e1b9e6b6b820d8)
