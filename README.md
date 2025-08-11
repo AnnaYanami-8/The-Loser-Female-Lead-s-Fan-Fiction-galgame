@@ -6,8 +6,10 @@
 ## 游戏截图
 ![游戏截图1](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE%202025-08-11%20015302.png)
 ![游戏截图2](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE%202025-08-11%20015334.png)
-![游戏截图3](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/1754848529686.jpeg)
-![游戏截图4](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/1754848536755.png)
+![游戏截图3](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/%E5%85%AB%E5%A5%88%E8%A7%81%E7%BA%BF%20%E3%80%901%E3%80%91.png)
+![游戏截图4](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/%E5%85%AB%E5%A5%88%E8%A7%81%E7%BA%BF%20%E3%80%902%E3%80%91.png)
+![游戏截图5](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/1754848529686.jpeg)
+![游戏截图6](https://github.com/AnnaYanami-8/The-Loser-Female-Lead-s-Fan-Fiction-galgame/blob/main/1754848536755.png)
 ## 网盘资源列表（持续覆盖不同网盘）
 ### 百度网盘
 [https://pan.baidu.com/s/5PUYgzxw2gy41wLQBtBaExw#list/path=%2F&vmode=list](https://pan.baidu.com/s/5PUYgzxw2gy41wLQBtBaExw#list/path=%2F&vmode=list)
